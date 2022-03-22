@@ -1,1 +1,1 @@
-# smol-age-nft
+# smol0
